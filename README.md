@@ -1,2 +1,2 @@
-# Mable-Research-PLZA
-Quickest way to complete Mable's Research in Pokemon Legends ZA
+Subscribe To Phenom The Gamer
+https://www.youtube.com/@PhenomTheGamer
